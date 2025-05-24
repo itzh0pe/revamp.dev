@@ -1,4 +1,4 @@
-##  STOP TRYING TO STEAL MY SCRIPT 
+##  STOP TRYING TO STEAL MY SCRIPT🤬🤬 
 
 Use this script in your executor to run the latest version of the loader:
 
